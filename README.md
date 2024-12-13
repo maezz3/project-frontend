@@ -1,1 +1,1 @@
-Frontend-репозиторий команды 0L3QsNC30LLQsNC90LjQtQo=
+Frontend-репозиторий команды 0L3QsNC30LLQsNC90LjQtQo= Никиты Шмагина
